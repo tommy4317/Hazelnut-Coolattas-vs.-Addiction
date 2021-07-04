@@ -3,6 +3,7 @@
 Hazelnut Coolattas vs. Addiction
 
 Checking this add 
+and checking this add
 
 You never really get over addiction, 
 you simply replace one with another that’s hopefully less harmful.
