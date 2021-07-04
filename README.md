@@ -2,6 +2,8 @@
 
 Hazelnut Coolattas vs. Addiction
 
+Checking this add 
+
 You never really get over addiction, 
 you simply replace one with another that’s hopefully less harmful.
 Like quitting smoking, but developing a habit for chewing on toothpicks. 
